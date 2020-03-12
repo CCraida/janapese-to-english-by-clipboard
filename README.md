@@ -1,0 +1,1 @@
+# janapese-to-english-by-clipboard
